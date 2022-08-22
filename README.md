@@ -1,1 +1,1 @@
-# Pratice-Adare-Resturant
+# Pratice-Adare-Restaurant
